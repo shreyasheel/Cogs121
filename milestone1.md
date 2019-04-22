@@ -10,7 +10,7 @@ Shreya Sheel
 
 Chris Wynne
 
-Camdynn Rasque
+Camdyn Rasque
 
 # Project Proposal: 
 
